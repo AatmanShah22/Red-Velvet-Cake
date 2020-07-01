@@ -1,0 +1,1 @@
+This recipe is about how to make a red velvet cake. To make a red velvet cake you will need a couple of ingredients. This cake is also very delicious and can be easily made within 40-60 minutes. It is moist, slightly damp, very smooth, and cuts very nicely and easily.

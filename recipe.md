@@ -13,3 +13,4 @@ Instructions:
 •I have added vinegar as the buttermilk I have used wasn’t sour enough.
 •Rest notes and tips given below with pictorial instructions.
 I have used two 6” cake pans .
+*
